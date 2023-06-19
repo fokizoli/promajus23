@@ -1,2 +1,2 @@
 # promajus23
-# konfliktus lesz
+# konfliktus volt
