@@ -1,2 +1,2 @@
 # promajus23
-# konfliktus volt
+# konfliktus volt egy perce
